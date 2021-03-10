@@ -2,7 +2,7 @@
 
 Infosec lover & Open Source enthusiast 
 
-[Keeping track on ](https://twitter.com/grumo1337)
+Keeping track on https://twitter.com/grumo1337
 
 
 
